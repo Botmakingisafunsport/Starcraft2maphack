@@ -1,0 +1,2 @@
+# Starcraft2maphack
+Maphack
