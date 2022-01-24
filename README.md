@@ -6,7 +6,7 @@ Hi everyone, I am selling a Starcraft 2 Full Maphack. If interested, message me.
 Pricing:
 Bitcoin, Litecoin and XRP: Lifetime + Source Code: $200
 
-Discord: CryptoSniper#9552
+Discord: Dave100#0910
 
 Please, don't message me here because I don't check this site that much. So, if ever you have questions just join the server and wait for me to add you. From there we will talk and you can ask me questions about the services I am offering.
 
